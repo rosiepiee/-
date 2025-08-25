@@ -4,6 +4,10 @@ I don't really care what pronouns you use, I prefer she/her but it's not a bothe
 I'm usually in the Sonic area or chilling near the bakery with my boyfriend! (I LOVE HIM SO MUCH!!!) 
 I'm in a lot of fandoms so if you wanna know, check out my strawpages made by my amazing bf!! ❤️ 
 
+Dni list is basic, just don't be a weird ahhole. this includes pedos, racists, trans/homophobic people, proshippers, and so on. Idgaf about what you like unless it's BAD... (Why did I get dissed on for liking Bluey? "Dni if bluey fan.." WHAT DID I DO??) 
+
+I love Sonic, Danganronpa, MLP, Mortal Kombat, TWDG, Parappa, and more. (Listed in strawpages!)
+
 Online- HIII!!!
 
 Busy- Using chilling and I don't wanna be bothered (Unless your my bf, sis, or friends!)

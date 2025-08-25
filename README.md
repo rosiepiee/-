@@ -13,5 +13,6 @@ Away- Afk, away from my computer, leave a whisp if you need anything!
 (I don't roleplay as it makes me uncomfortable, pls don't ask)
 
 Don't flirt.. even as a joke, I'm happily taken, thank you.
+
 <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/9ef6533c-f43b-417b-b7d6-1d5b8944f4cb" />
 

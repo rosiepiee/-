@@ -13,3 +13,4 @@ Away- Afk, away from my computer, leave a whisp if you need anything!
 (I don't roleplay as it makes me uncomfortable, pls don't ask)
 
 Don't flirt.. even as a joke, I'm happily taken, thank you.
+6834eded0cb08f3b9048b44983b90720.gif

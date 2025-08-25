@@ -1,10 +1,10 @@
 HI!!! I'm Rose! A silly girl who yaps and draws a lot.. if you're reading this, you probably saw me on ponytown so, HI! I love making new friends so I don't mind if you come up to chat! (I'm USUALLY scared to start a conversation first)
 
-I don't really care what pronouns you use, I prefer she/her but it's not a bother if you want to use he/they, I don't mind at all! ^_^
+I don't really care what pronouns you use for me, I prefer she/her but it's not a bother if you want to use he/they, I don't mind at all! ^_^
 I'm usually in the Sonic area or chilling near the bakery with my boyfriend! (I LOVE HIM SO MUCH!!!) 
 I'm in a lot of fandoms so if you wanna know, check out my strawpages made by my amazing bf!! ❤️ 
 
-Dni list is basic, just don't be a weird ahhole. this includes pedos, racists, trans/homophobic people, proshippers, and so on. Idgaf about what you like unless it's BAD... (Why did I get dissed on for liking Bluey? "Dni if bluey fan.." WHAT DID I DO??) 
+Dni list is basic, just don't be a weird ahhole. this includes pedos, racists, trans/homophobic people, proshippers, and so on. Idgaf about what you like unless it's BAD... (Why did I get dissed on for liking Bluey? "Dni if bluey fan.." WHAT DID I DO??) Yo Zelda, unfollow me bro... I don't support pedos! You literally have dni danganronpa fans on your profile.. <3
 
 I love Sonic, Danganronpa, MLP, Mortal Kombat, TWDG, Parappa, and more. (Listed in strawpages!)
 

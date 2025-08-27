@@ -10,7 +10,7 @@ I love Sonic, Danganronpa, MLP, Mortal Kombat, TWDG, Parappa, and more. (Listed 
 
 Online- HIII!!!
 
-Busy- Using chilling and I don't wanna be bothered (Unless your my bf, sis, or friends!)
+Busy- Using chilling and I don't wanna be bothered (Unless you're my bf, sis, or friends!)
 
 Away- Afk, away from my computer, leave a whisp if you need anything!
 
